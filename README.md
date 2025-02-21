@@ -1,4 +1,4 @@
-- 🌱 目前正在学everyday and EveryDiary.
+- 🌱 目前正在everyday and EveryDiary Study.
  
 - 🤔 好好工作,仅仅为了自己.
   
