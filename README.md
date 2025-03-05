@@ -1,4 +1,4 @@
-- 🌱 目前正在everyday and EveryDiary Study.
+- 🌱 目前正在everyday Study.
  
 - 🤔 仅仅为了自己.
   
